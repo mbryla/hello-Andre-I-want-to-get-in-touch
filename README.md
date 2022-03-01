@@ -1,0 +1,2 @@
+# hello-Andre-I-want-to-get-in-touch
+Hello Andre? I want to get in touch with you regarding your Github username (to be precise the "cld" username). I see that you don't have any contributions nor public repositories, so there's a chance that you're not using your Github account. If this is the case let's get in touch. You don't have any contact details, can you please write me an e-mail - mateusz.bryla@codete.com ? Best, Mateusz
